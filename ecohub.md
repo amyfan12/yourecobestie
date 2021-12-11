@@ -141,7 +141,7 @@ Jesse Kamm
 Mixed Business
 OR Los Angeles
 Galerie LA
-Girlfriend Collective
+Girlfriend Collective | turns plastic bottles into athletic wear, and sustainable materials
 Back Beat Co. 
 Christy Dawn
 Elizabeth Suzann
@@ -149,7 +149,7 @@ Pair Up Etc.
 Suay Shop
 MATE The Label
 Boyish Jeans
-Organic Basics
+Organic Basics | sustainable materials like Tencel & organic cotton 
 
 ### Secondhand/Thrift
 | Brand/Shop	| Why? | 
@@ -178,11 +178,12 @@ Arq
 [Hara The Label](https://www.harathelabel.com/) | Plant dyed bamboo intimates |
 Proclaim
 Hara the Label
-Parade
-Knickey
+Parade | made from sustainable materials and recycled nylon
+Knickey | sustainable materials. underwear recycling
+Boody | sustainable materials
 Pansy
-Organic Basics
-Pact Organic Underwear
+Organic Basics | sustainable materials 
+Pact Organic Underwear | sustainable materials
 Brook There
 Groceries Apparel
 [Pantee](https://pantee.co.uk/) | made from dead stock, 1% for the planet |
@@ -190,12 +191,12 @@ Groceries Apparel
 ### Workout gear	
 | Brand/Shop	| Why? | 
 | ------ | ------|
-Girlfriend Collective
+Girlfriend Collective | recycled materials
 Outdoor Voices
 Groceries Apparel
 Patagonia
-Boody
-Pact
+Boody | sustainable materials
+Pact | sustainable materials
 
 ### Swim	
 | Brand/Shop	| Why? | 
